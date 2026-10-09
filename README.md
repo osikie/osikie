@@ -1,4 +1,4 @@
-# Hi, I'm Osikie 👋
+# Hi, I'm Yosie 👋
 
 ### IT Support Specialist | Technical Support | IT Operations
 
