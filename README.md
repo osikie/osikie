@@ -1,4 +1,4 @@
-# Hi, I'm Yosie 👋
+# Hi, I'm Yosie Sugana 👋
 
 ### IT Support Specialist | Technical Support | IT Operations
 
